@@ -1,2 +1,2 @@
-# Curr-culo-Nascimento-
+# Curriculo-Nascimento-
 Portfólio profissional 
